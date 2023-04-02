@@ -1,4 +1,4 @@
-# 🏄‍♂️ Akash Choudhary
+# 🏄‍Hiii, I am Akash Choudhary
 
 **`Skilled Data Analyst`**
 <h4>Professional Business Analyst from India with 4+ years’ experience in Start-up business. Ground Knowledge to handle a new business and Capable in building revenue generation model for a business using Analytical skill & data driven decision.</h4>
