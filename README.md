@@ -1,6 +1,6 @@
 # 🏄‍♂️ Akash Choudhary
 
-**`Super Data Analyst`**
+**`Skilled Data Analyst`**
 <h4>Professional Business Analyst from India with 4+ years’ experience in Start-up business. Ground Knowledge to handle a new business and Capable in building revenue generation model for a business using Analytical skill & data driven decision.</h4>
 <p align="center"><img alt="Data Scientist" width="400" src="https://media.giphy.com/media/FoVzfcqCDSb7zCynOp/giphy.gif"> </p>
 
